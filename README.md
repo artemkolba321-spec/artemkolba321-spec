@@ -5,3 +5,4 @@
 ### мои соцсети 👇
 - [telegram](https://t.me/artem_cool)
 - [VK](https://vk.ru/artem_llbn)
+- [discord](https://discord.gg/UkdXhb5NSb)
